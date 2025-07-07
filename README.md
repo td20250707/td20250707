@@ -27,4 +27,4 @@
 
 最后，理性观看和保护个人隐私始终是最重要的。在享受日本AV免费资源的同时，也要保持健康的娱乐心态。如 JavLibrary、XVideos、FC2 等提供高清、免费播放服务，而像 FANZA、Prestige 等日本官方网站也设有免费试看专区，资源正规清晰。建议搭配 VPN 使用，避免隐私泄露，同时留意版权限制，安心享受高质量影片不踩雷！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td20250707 ）</span>
